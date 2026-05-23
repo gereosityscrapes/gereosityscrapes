@@ -1,3 +1,3 @@
 
-![Image Alt](https://github.com/gereosityscrapes/gereosityscrapes/blob/82fe47ae0e8cb22ed4aa93822ba0df36b9bef9b4/Spyglass_(item)_JE3_BE1.png)
+![Image Alt](<img width="600" height="800" alt="Image" src="https://github.com/user-attachments/assets/e38f5fc3-ef4c-4369-a87c-238b7ca10f51" />
  
