@@ -1,3 +1,3 @@
   <img alt="Image" src="https://media.discordapp.net/attachments/1249540175453884536/1549691675767476244/hi.png?ex=6aab9e57&is=6aaa4cd7&hm=e2281ebcdc3bf77c23e097b9c4e90087da7dc2f22b7c0bf485103536496b3ce6&=&format=webp&quality=lossless" />
-   Songs media 
-<img height="400" size="300" width="500" alt="Image" src="https://media.discordapp.net/attachments/1535844569361555496/1548482299367133184/IMG_0779.png?ex=6aa73805&is=6aa5e685&hm=33b270f5f79bb1cc3cfd5dbfbdc321f00ab345faddd97754b6acbc539d11df92&=&format=webp&quality=lossless&width=575&height=1024" /> <img height="200" size="300" width="500" alt="Image" src="https://cdn.discordapp.com/attachments/1249540175453884536/1555158603579789364/image.png?backend=b2&ex=6abf81d0&is=6abe3050&hm=f5a219ff886ddc37c0928e16bfe704d03a26f31c0dfee7255bbffbfa7dbf8472&" />
+   kuro smells like butt ajax will die in 3 days
+ <img height="200" size="300" width="500" alt="Image" src="https://cdn.discordapp.com/attachments/1249540175453884536/1555158603579789364/image.png?backend=b2&ex=6abf81d0&is=6abe3050&hm=f5a219ff886ddc37c0928e16bfe704d03a26f31c0dfee7255bbffbfa7dbf8472&" />
