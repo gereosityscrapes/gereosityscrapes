@@ -1,1 +1,2 @@
-![image](https://media1.tenor.com/m/CsYDrRh2AacAAAAC/loonac-loonac-wisp-smp.gif)
+<p align="center"> <img src="https://c.tenor.com/ObMKsGcKEJEAAAAC/tenor.gif"/>
+ <p align="center">  me and bunzan <3
